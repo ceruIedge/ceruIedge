@@ -1,4 +1,4 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=ceruIedge&color=blue&label=da_goats&abbreviated=true" />
+  <img src="https://komarev.com/ghpvc/?username=ceruIedge&color=blue&label=☆s&abbreviated=true" />
 
-![spinel](https://i.imgur.com/upYwB03.png)
+![what](https://i.imgur.com/wIgKKiZ.jpeg)
