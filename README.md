@@ -1,4 +1,4 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=ceruIedge&color=blue&label=☆&abbreviated=true" />
 
-![what](https://i.imgur.com/wIgKKiZ.jpeg)
+![n](https://i.imgur.com/K2OJk6o.jpeg)
