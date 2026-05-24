@@ -5,4 +5,6 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
+< i go by many names
+
+[atabook](https://infugue.atabook.org/)
