@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-< i go by many names
+i go by many names
 
 [atabook](https://infugue.atabook.org/)
