@@ -5,4 +5,4 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-i go by many names and i don't know what my main one should be
+i go by many names, and I don’t know which one should be my main one
