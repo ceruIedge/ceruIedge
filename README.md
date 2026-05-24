@@ -5,4 +5,4 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-i go by many names; not sure about my main name yet
+i go by many names
