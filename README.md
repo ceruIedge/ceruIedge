@@ -5,4 +5,6 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" how dare we sit quietly & watch the world pass us by? "
+" watch the world pass us by? "
+
+miss u T u da true one
