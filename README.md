@@ -8,5 +8,3 @@
 " what am i without you? "
 
 watch da world pass us by
-
-[新book](https://infugue.atabook.org/)
