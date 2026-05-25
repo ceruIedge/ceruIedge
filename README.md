@@ -5,4 +5,4 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-" the second choice. "
+the second choice
