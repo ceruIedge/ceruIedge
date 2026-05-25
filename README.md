@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" surrounded and yet i still feel alone "
+" you left , what am i without you? "
 
 [新book](https://infugue.atabook.org/)
