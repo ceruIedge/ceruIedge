@@ -5,6 +5,4 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-u wanna c+h me so bad 😵‍💫
-
 [新book](https://infugue.atabook.org/)
