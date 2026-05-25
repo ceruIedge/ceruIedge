@@ -5,6 +5,4 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" what am i without you, T? "
-
-watch da world pass us by
+" how dare we sit quietly & watch the world pass us by? "
