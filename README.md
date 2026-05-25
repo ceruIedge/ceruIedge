@@ -4,5 +4,3 @@
   <img src="https://komarev.com/ghpvc/?username=ceruIedge&color=blue&label=☆&abbreviated=true" />
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
-
-10/19/25 🫡
