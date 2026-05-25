@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" always surrounded, yet i still feel alone "
+" always surrounded and yet i still feel alone "
 
 [新book](https://infugue.atabook.org/)
