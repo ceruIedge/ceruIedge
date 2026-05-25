@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" watch the world pass us by? "
+" watch the world pass us by. "
 
-miss u T u da true one
+miss u T
