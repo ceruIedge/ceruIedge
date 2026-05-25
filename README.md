@@ -7,4 +7,6 @@
 
 " you left, what am i without you? (T) "
 
+watch da world pass us by, sign da ata
+
 [新book](https://infugue.atabook.org/)
