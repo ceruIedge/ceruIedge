@@ -5,7 +5,7 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" you left, what am i without you? "
+" what am i without you? "
 
 watch da world pass us by
 
