@@ -5,8 +5,8 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-" you left, what am i without you? (T) "
+" you left, what am i without you? "
 
-watch da world pass us by, sign da ata
+watch da world pass us by
 
 [新book](https://infugue.atabook.org/)
