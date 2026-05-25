@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/kEHRVO8.jpeg" width="360px">  <br>
 
-spinelling it ;) 
+always surrounded, yet still alone
 
 [新book](https://infugue.atabook.org/)
