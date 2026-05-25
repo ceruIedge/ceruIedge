@@ -7,4 +7,4 @@
 
 u wanna c+h me so bad 😵‍💫
 
-[新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
+[新book](https://infugue.atabook.org/)
